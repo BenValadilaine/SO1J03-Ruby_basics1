@@ -1,1 +1,1 @@
-Exercices menés par Ben et ### .
+Exercices menés par Ben.
